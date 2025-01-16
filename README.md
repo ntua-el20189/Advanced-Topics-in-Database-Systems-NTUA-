@@ -1,1 +1,1 @@
-tsoym tsoym
+tsoum tsoum
